@@ -1,1 +1,1 @@
-my name is khan and i ma not a terrorist
+my name is khan and i am not a terrorist
